@@ -1,1 +1,0 @@
-Thư mục hình ảnh cho sachktl
